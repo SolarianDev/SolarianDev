@@ -1,2 +1,2 @@
 # Hi there 👋
-I am a Duck who loves messing with computer stuff
+I am a Duck who Quack Quack Quack
